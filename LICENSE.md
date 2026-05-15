@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with high-frequency blur sniper bot | auto-sell + wash-trading-execution, the #1 blur sniper bot. Includes auto-sell and wash-trading-execution for a
 
 
 
